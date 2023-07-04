@@ -9,8 +9,6 @@ In today's competitive business landscape, establishing a strong brand identity 
 
 <br/>
 
-<br/>
-
 <div align="center"><img src="https://s3.ap-south-1.amazonaws.com/peacockindia.com/blog/logo-package/Unlocking_Brand_Identity_The_Ultimate_Logo_Package_Guide.png" style="width:'100%'"/></div>
 
 <br/>
@@ -94,7 +92,7 @@ By choosing a tailored logo design package, businesses can ensure a visually com
 
 > Ready to take your brand to the next level? Invest in a professional logo and branding package today and unlock the power of a strong and memorable brand identity. 
 
-#### [strongContact us now to get started on your branding journey!](https://www.peacockindia.in/contact-us)
+#### [Contact us now to get started on your branding journey!](https://www.peacockindia.in/contact-us)
 
 ## The UPS Delivery Logo: A Case Study
 
